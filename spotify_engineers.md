@@ -1,4 +1,4 @@
-![Spotify Engineer](https://miro.medium.com/v2/resize:fit:700/1*APHuo_au0ttjdTezvxn3Jw.png)
+![Spotify CEO](https://miro.medium.com/v2/resize:fit:700/1*APHuo_au0ttjdTezvxn3Jw.png)
 
 # Spotify's Best Engineers Haven't Written Code in Months (Here's Why)
 
